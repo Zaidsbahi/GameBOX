@@ -14,6 +14,10 @@ Preview
 
 ![2288bae1-f996-4f3e-a2e5-54c8768dd4fb](https://github.com/user-attachments/assets/7f2e3c51-d0ad-4849-b67c-3cfdbc3908b4)
 
+Demo Video
+---
+https://streamable.com/deumdw
+
 3D Version
 ---
 
